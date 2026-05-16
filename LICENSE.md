@@ -1,4 +1,4 @@
-# 
+# automatic NFT Sniper for nft floor sweeper bot | multi-chain-support & volume-analysis offers the most advanced nft floor sweeper bot, with multi-chain-support and
 
 
 
